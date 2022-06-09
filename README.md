@@ -4,3 +4,8 @@ features:
 crystal clear audio scripts
 custom scripts
 great for hitting coinbase, paypals, banks
+
+
+
+
+https://discord.gg/3kGg7FFaJp
